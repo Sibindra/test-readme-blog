@@ -30,8 +30,7 @@ Networking and mentorship play vital roles in entrepreneurial success:
 - Seek guidance from experienced entrepreneurs.
 - Build a network of like-minded individuals.
 
-![Networking](https://example.com/networking.gif)
-*GIF Source: [Example.com](https://example.com)*
+![Money Bags](https://media.tenor.com/qy51r4zbQBUAAAAM/money-bags.gif)
 
 ---
 
